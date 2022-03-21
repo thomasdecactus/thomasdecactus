@@ -1,0 +1,5 @@
+- 👋  Hello There, I’m Thomas!
+- 🌵  Find me on other social media by @thomasdecactus.
+- 🔥  Mainly interested in web development.
+- ☕️  Always up for Fika.
+- 📫  Reach me by Instagram direct message
